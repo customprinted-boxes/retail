@@ -25,10 +25,10 @@
 <p>&nbsp;</p>
 <h2><strong>3.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </strong><strong><u>Geometric Shapes</u></strong></h2>
 <p>&nbsp;</p>
-<p>It is another beautiful and edgy design that will be leading the trends this year. Your minimalistic designs will blossom with the inclusion of geometry on boxes. You have to keep it neat and attention-grabbing to influence people with your packaging design. We have seen how vivid geometric figures with clear lines and jagged angles swept the floor in the former year. We want to tell you that it was the dawn of geometry shapes.</p>
+<p>It is another beautiful and edgy design that will be leading the trends this year. Your <a href="https://creativemarket.com/blog/minimalist-design-trend">minimalistic designs</a> will blossom with the inclusion of geometry on boxes. You have to keep it neat and attention-grabbing to influence people with your packaging design. We have seen how vivid geometric figures with clear lines and jagged angles swept the floor in the former year. We want to tell you that it was the dawn of geometry shapes.</p>
 <p>&nbsp;</p>
 <p>It was a huge hit, and many businesses will be competing for uniqueness and a better unboxing experience in 2021. It also gives the idea to the customer about your brand in an exciting way. Geometric shapes provide a bold and powerful statement, just like the small illustrated patterns did.</p>
 <p>&nbsp;&nbsp;</p>
 <h1><strong>The Final Thought</strong></h1>
 <p>&nbsp;</p>
-<p>In summary, having these three packaging designs in 2021 will present you with lasting customer loyalty and status to recognize easily. Hire a reputed printing and packaging solutions service that will make the job easier and fun at cost-effective prices.</p>
+<p>In summary, having these three <a href="https://www.canva.com/learn/packaging-design/">packaging designs</a> in 2021 will present you with lasting customer loyalty and status to recognize easily. Hire a reputed printing and packaging solutions service that will make the job easier and fun at cost-effective prices.</p>
